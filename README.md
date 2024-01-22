@@ -1,4 +1,4 @@
-### Hi there 👋
+### Whats up Im Ftaquaphoenix15 (Main, Minecraft) / Aquaphoenix15 (Alt) / OPnoob (OW2) / Steve (Minecraft)
 
 - 🌱 I’m currently learning C#
 - 💬 Ask me about Minecraft. Anything to do with it.
