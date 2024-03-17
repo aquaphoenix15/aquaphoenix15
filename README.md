@@ -11,17 +11,9 @@ Minecraft Friends:
   - Tiro
   - Zade_13
 
- IRL Friends:
-  - Luca
-  - Merita
-  - Isabel
-  - Matt
-  - Ayush
-
 Other:
   - Chatgpt
   - Steve
   - Notch
   - Jeb
   - The whole Minecraft team
-  - My parents ❤️
