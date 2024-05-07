@@ -1,19 +1,5 @@
-### Whats up Im Ftaquaphoenix15 (Main, Minecraft) / Aquaphoenix15 (Alt) / OPnoob (OW2) / Steve (Minecraft)
+### Whats up Im Ftaquaphoenix15.
 
-- 🌱 I’m currently learning C#
+- 🌱 I’m a java dev. Don't frown at me.
 - 💬 Ask me about Minecraft. Anything to do with it.
 - ⚡ Fun fact: Do not message me.
-
-  Shoutout to my friends ( ❤️ if you see this):
-
-Minecraft Friends:
-  - Pcat_
-  - Tiro
-  - Zade_13
-
-Other:
-  - Chatgpt
-  - Steve
-  - Notch
-  - Jeb
-  - The whole Minecraft team
